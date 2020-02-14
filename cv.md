@@ -27,12 +27,12 @@ August 2017 - January 2020
 - Effective multi-tasker with outstanding organizational and customer service skills
 <br>
 - Quickly learn and master new technology <br>
-- Equally successful in both team and self-directed settings.
+- Equally successful in both team and self-directed settings
 
 #### PERSONAL TRAITS
 
-- Highly motivated and eager to learn new things. <br>
-- Strong motivational and leadership skills.
+- Highly motivated and eager to learn new things <br>
+- Strong motivational and leadership skills
 <br>
-- Ability to work as an individual as well as in group.
+- Ability to work as an individual as well as in group
  
